@@ -7,13 +7,14 @@ As for "throwing words around" i dont know what amount of asskissing is going on
 I opened up to you about BOTH soap and his ex gaslighting and lying to me as well as guiltripping
 THAT is manipulation. 
 
-Soap continuously lied to me on several occasions saying that his ex contacted him and then had me contact their ex and tell them to stop. Tho i never mentioned it to soap, sleepy had SHOWN me proof that he didnt do what soap said  and  that soap was the one contacting him, soap never admitted to it and kept the lie up and i never confronted him about it. 
+Soap continuously lied to me on several occasions saying that his ex contacted him and then had me contact their ex and tell them to stop. Tho i never mentioned it to soap, sleepy had SHOWN me proof that he didnt do what soap said  and  that soap was the one contacting him, soap never admitted to it but kept stretching the lie out and kept the lie up and i never confronted him about it. 
 
 Some of the proof of this i STILL HAVE.
 
 I opened up to you about the manipulation i faced from both sides and how they always put me in the middle of their issues.
 
 THAT is why he was being called manipulative. 
+because i am not the only one was aware of his lying.
 
 And since you want to talk about "throwing words around" you are accusing of manipulating keegan despite the fact i never spoke to them about this situation. At all. 
  They made a choice on their own and off their own feelings which they opened up about.  And you are blaming me for them choosing to distance from you. 

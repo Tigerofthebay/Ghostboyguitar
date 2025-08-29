@@ -31,6 +31,21 @@ i kept to myself and i removed myself from this situation before it even started
 so no i didnt target anyone, i didnt harass them and i certainly didnt blow up on anyone for being friends so  stop bringing me into it 
 
 
+please stop with your comments on my ata. harassing me doesnt make you better in any way.
+
+and stop inserting me in this drama without understanding my side
+
+prior to this even happening i was upset with saffron for many reasons and i distanced myself from him because he was acting off and it made me uncomfy.
+
+but instead of giving me my space i was constantly bothered. i could not go a DAY by myself. despite knowing i wasnt in the mood and me asking to be left alone they would not leave me alone and just bugged me with questions for spacing myself
+
+i NEVER said i was upset over him and soap being friends, he knew i was upset with him and just assumed that is was about that. i didnt tell ANYONE why i was upset with him i just removed myself from near him
+
+the only input from me during his entire thing was me defending myself and asking to stop being mentioned. as well as confronting him on things he had said. 
+
+stop inserting me into this situation that you created yourselves please. 
+
+i am not obligated to forgive or like anyone. and being inlcuded in this just because i wanted some space and time to myself is actually absurd. 
 
 <!--
 **ghostboyguitar/Ghostboyguitar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

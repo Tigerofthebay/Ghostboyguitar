@@ -21,7 +21,8 @@ then by all means keep it to yourself because i wont entertain bullshit
 
 i will defend myself if i am mentioned,so please keep your harrasment claims to urself when i do 
 
-
+i am over this drama and id wish some of you would get the hint because i keep having to remove your comments
+do not bring me into anything because i sure as hell had nothing to do with wtv is going on rn
 
 
 <!--

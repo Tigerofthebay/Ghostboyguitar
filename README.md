@@ -24,6 +24,13 @@ i will defend myself if i am mentioned,so please keep your harrasment claims to 
 i am over this drama and id wish some of you would get the hint because i keep having to remove your comments
 do not bring me into anything because i sure as hell had nothing to do with wtv is going on rn
 
+i didnt try change anyones mind, i didnt yell at anyone for being friends, i kept my feelings to MYSELF and considering you where the one so desperate to know if i was mad or not idk why youre crying about it now??
+
+i kept to myself and i removed myself from this situation before it even started. i am not tied to anything anyone else says on this because theyre making their own choices, no input from me whatsoever. i have a right to distance myself ! that was my choice! i wasnt "intentionlly trying to hurt" anyone, i was trying to keep MY peace. 
+
+so no i didnt target anyone, i didnt harass them and i certainly didnt blow up on anyone for being friends so  stop bringing me into it 
+
+
 
 <!--
 **ghostboyguitar/Ghostboyguitar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -2,28 +2,25 @@ Okay this note was made for the purpose of defending myself as against my wishes
 
 Saffron- for the love of god stop mentioning me. I politely asked for you to refrain from it and it was the only words said towards you during this entire situation.
 
-As for "throwing words around" i dont know what amount of asskissing is going on here but i had already opened up to you about the manipulation i faced from soap and EXPLAINED what happened. Not only that as well as proof of him guiltripping me. Which i had shown you btw but heres a short  trip down memory lane
+i have done nothing but defend myself this entire time and insist on you both to stop mentioning me. 
 
-I opened up to you about BOTH soap and his ex gaslighting and lying to me as well as guiltripping
-THAT is manipulation. 
+i will not fogive a person who cannot even own up to every action towards me.
+i have been TRYING to move on with my life but every single week like clockwork atleast one of you spawn to make my life harder.
 
-Soap continuously lied to me on several occasions saying that his ex contacted him and then had me contact their ex and tell them to stop. Tho i never mentioned it to soap, sleepy had SHOWN me proof that he didnt do what soap said  and  that soap was the one contacting him, soap never admitted to it but kept stretching the lie out and kept the lie up and i never confronted him about it. 
+and again, it is not "taking responsibity" if you cannot handle the full weight and  actually properly apologize.
 
-Some of the proof of this i STILL HAVE.
+idgaf abt ts and i dislike that it keeps coming back. 
 
-I opened up to you about the manipulation i faced from both sides and how they always put me in the middle of their issues.
+so please stop bringing yourselves into my life because it has nothing to do with you, and stop bringing me into your bullshit 
 
-THAT is why he was being called manipulative. 
-because i am not the only one was aware of his lying.
+you could kill eachother for all i care jst leave me tf out or i will indeed start up again.
 
-And since you want to talk about "throwing words around" you are accusing of manipulating keegan despite the fact i never spoke to them about this situation. At all. 
- They made a choice on their own and off their own feelings which they opened up about.  And you are blaming me for them choosing to distance from you. 
+if your "admittance" and "apologies" are just going to turn into waterdowned pity parties to make urself feel better without having any actual meaning or fully admitting and apologizing for what you have done 
 
-You know it well that you where the one who escalated this situation.
+then by all means keep it to yourself because i wont entertain bullshit
 
-I am only defending myself  abt the things being said abt me and confronting about it. 
+i will defend myself if i am mentioned,so please keep your harrasment claims to urself when i do 
 
-This will be the last time i ask. Stop bringing me into this
 
 
 

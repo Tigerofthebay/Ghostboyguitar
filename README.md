@@ -37,3 +37,12 @@ VALIEN -  what if i drag you away and never let you go !!! COOL COOL GUY THAT IM
 keegan- idk you much but youre always concerned for everyone around you and i forever respect you for it !
 
 GUMMY -  the jessie to my james, my dearest partner in crime ! you where always there when i needed you most and i will forever do the same
+
+
+SPECKLE- may someome save us from being abused by yoko 😿 #stopspeckleabuse #stopandyabuse
+
+Micro - king of playing dumb 
+ALMOST A YEAR SINCE WE'VE BEEN FRIENDS AUGHH the silliest of all !!
+
+SHOYO !!!! - such a sweetie pie /p 
+GUH ILY ALL /P

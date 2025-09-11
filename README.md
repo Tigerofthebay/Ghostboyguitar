@@ -1,0 +1,16 @@
+Hello, 
+
+i wont really be active for a while or permanently off pony town. 
+recently some things have happened and have been triggering relapses for me. 
+
+its been happening for a while but its reached a breaking point as it ha d gotten really bad and i had acted on bad thoughts.
+
+so for well my own safety im trying to leave it all behind and move on with my life out side of this app. 
+
+the memories are harmful to me and i can no longer stay around as my health continues to deteriorate. 
+
+i am greatful for all the wonderful friends i had made on here. and really i thank you all for your support within the time you've known me. 
+
+long term or short. i'll still be somewhat active on discord but i'll only really be accepting reqs from friends.
+
+please remember i love you all /p.

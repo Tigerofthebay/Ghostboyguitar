@@ -1,16 +1,20 @@
-Hello, 
+note ! saffron let me be the first to say you are actually insane. 
 
-i wont really be active for a while or permanently off pony town. 
-recently some things have happened and have been triggering relapses for me. 
+nobody was really dogpiling you. 
+ill say it again NO ONE was doing that
 
-its been happening for a while but its reached a breaking point as it ha d gotten really bad and i had acted on bad thoughts.
+you where confronted on your actions and your hypocrisy. you lecture us and others about your high and mighty values but consent is a value you dont EVER follow. and okay speaking on suicide 
 
-so for well my own safety im trying to leave it all behind and move on with my life out side of this app. 
+when we werent on talking terms, when i was fucking BEGGING you to take down my vents with my fucking overdose. you flat out refused. and it took us becoming friends again and me asking for the THIRTEÈENTH time for you take it down. 
 
-the memories are harmful to me and i can no longer stay around as my health continues to deteriorate. 
 
-i am greatful for all the wonderful friends i had made on here. and really i thank you all for your support within the time you've known me. 
+you always weaponize the things of people around you because its always easier to blame everyone but yourself. 
 
-long term or short. i'll still be somewhat active on discord but i'll only really be accepting reqs from friends.
 
-please remember i love you all /p.
+you couldnt admit to it or apologize and that says alot already 
+
+and "ive done some things" you mean the shit you continue to do? 
+
+grow a spine. 
+
+you really are just a spineless jackass.

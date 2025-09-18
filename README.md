@@ -33,11 +33,11 @@ but when it was our turn to be upset or uncomfortable oh no saint saffron was su
 this blew up solely because of you and soap
 mowie never said anything to you until you yelled at him for taking a step back
 
-the only time i called you out directly was when you wheres spreading  bullshit about me manipulating keegan and blamed me for keegan not talking to you
+the only time i called you out directly was when you where spreading  bullshit about me manipulating keegan and blamed me for keegan not talking to you
 
 where was your sympathy when i was struggling
 where was the decency when i begged you to remove my vents and to stop making fun of them
-i was the one struggling and you labeled me as victimizing myself because you undermine everyone but you
+i was the one struggling and you labeled me as victimizing myself because you undermine everyone but you.
 to you no ones problems matter except your own
 
 your only compassion is your own issues.
@@ -49,7 +49,7 @@ you created and escalated this mess
 
 and soap is useless in all this because he could not keep me out of anything if his life depended on it and before you say "dont involve him" he involved himself
 
-you constantly water down what others went through no matter which side experienced it
+you constantly water down what others went through no matter which side experienced it.
 
 you will always name one person the villain and minimize their mental health and trauma
 
@@ -59,7 +59,7 @@ you must have been craving my attention because you cannot keep my name out of y
 
 since the start ive been hearing ridiculous lies about me
 
-you are running from accountability so hard it is embarrassing
+you are running from accountability so hard it is embarrassing.
 
 do not lecture me about boundaries or respect when you have neither unless it benefits you
 

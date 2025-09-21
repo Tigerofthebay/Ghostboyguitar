@@ -1,72 +1,73 @@
-Saffron let me be the first to tell you youre actually unhinged
+Hello there sea dweller !!
 
-nobody was dogpiling you
-ill say it again NO ONE was doing that
+Im vinny/Andy 
+pronouns r he/they + neos !
 
-you got called out on your actions and your hypocrisy
-you lecture everyone about morals and respect  yet you are the one who never follows it
+due to past harrasment and threaths i will no longer be fully managing my sites ! please stay respectful/kind when interacting with me !
 
-and about suicide and "mental ruin"
-when we werent speaking and i was begging you to take down my vents with my overdose you refused
-it took us being friends again and me asking for the THIRTEENTH time for you to finally remove it
+Boundaries 🦭🪼:
 
-you weaponize other peoples pain because it is easier to point fingers than to look in a mirror
+1,no feminine pronouns or nicknames
+2,please do not ask me personal quetions 
+3, Please do not refer to me as love/darling or any other form of lovey dovey petnames ! hun and dear are alright !
 
-you cant admit anything and you cant apologize and that already tells the whole story
+if i ask for space i would really prefer to be left alone, do not poke at me when i clearly want alone time.
 
-and when you say "ive done some things" you really mean the same shit you keep doing now
 
-grow a spine
+do not assume my feelings or emotions ! assumptions make an ass out of you !
+wanting space ≠ im angry
 
-youre actually such a spineless jackass
+do not use others to talk to me on things. this feels dehumanizing to me.
+i am tired of having this boundary ignored and id appreciate it if you respect it.
 
-and the way you highlight out "friends" when you have been an ass to everyone around you is rich
-Esp the ones who spent hours a day trying to help you heal from the very shit you ran back to. 
+please do not int if :
 
-no real friend would SEE you doing smt they think isnt right and not feel somewhat upset or uncomfy.
-that is one of the most ridiculous expectation you set on others.
+you're a fictive of mori.
+i am alright with doubles of my fictkins but i really don't enjoy the company of mori fictkives due to past things.
 
-you ignored and shit talked and straight up mistreated one of us for talking to the exact same person you would spend most of your day shitting on
+please refrain from mentioning 
+smoking,drinking, or harmul drugs around me. i am a struggling person in rehab and i find such topics are triggering for me.
 
-but when it was our turn to be upset or uncomfortable oh no saint saffron was suddenly untouchable
+please try not to talk about needles around me either.
 
-this blew up solely because of you and soap
-mowie never said anything to you until you yelled at him for taking a step back
+i do no indulge or support 
+proshipping ! darkshipping or any form of taboo fiction. 
 
-the only time i called you out directly was when you where spreading  bullshit about me manipulating keegan and blamed me for keegan not talking to you
+i am not going to be forced to change my mind about anything so no this isnt up for debate.
 
-where was your sympathy when i was struggling
-where was the decency when i begged you to remove my vents and to stop making fun of them
-i was the one struggling and you labeled me as victimizing myself because you undermine everyone but you.
-to you no ones problems matter except your own
+do not interact. i repeat DO NOT int with me if youre friends with
 
-your only compassion is your own issues.
+rab
+kelp / nori
+saffron
+ratz
+del/ misty.
 
-no one forced you to stop talking to him
-you made it into a whole situation and then blew up at everyone who disagreed with your choice
+the only acception to this rule is a friend of mine. any others will not be tolerated
 
-you created and escalated this mess
 
-and soap is useless in all this because he could not keep me out of anything if his life depended on it and before you say "dont involve him" he involved himself
+lovemail more to be added soon !
 
-you constantly water down what others went through no matter which side experienced it.
+valien - i've never been more happier  to have you, you have no idea how bright you make everything around you just by being there when i need you the most ! ilysm darling <333
 
-you will always name one person the villain and minimize their mental health and trauma
+myst/mowie - My bestest friend ever !
+im happy to see you grow and change everyday and you have no idea how proud i am ! we have been through thick and thin together ! no situation has ever destroyed our friendship and that wont channge ! /p
 
-that never applies to you of course
+keegan - silly silly guy ! YOUR ART IS SO COOL AND YOURE A REALLY SWEET AND HONEST GUY !!
 
-you must have been craving my attention because you cannot keep my name out of your mouth ever and this isnt new
+Nene / yoko - ILYSM  OOMFIE /P 
+silly silly girl thats a deltarune nerd!
 
-since the start ive been hearing ridiculous lies about me
+najm- Abbruaba #1fan core. super super cool guy ! Ily as well oomfie :( /p
 
-you are running from accountability so hard it is embarrassing.
+Shoyo - SHOYOOOO!! YOURE LIKE AN OVERHYPER BALL OF FLUFF ! youre so sweet and the kindest ever !
 
-do not lecture me about boundaries or respect when you have neither unless it benefits you
+micro- get a job 😒.. 
+JK. ONE OF MY LONGEST KNOWN OOFMIES !! 
+friended so hard you get accused of being my partner in crime !!
 
-you couldnt respect my boundaries enough to not leak my face behind my back despite knowing how badly it triggered the paranoia of that was for me
+Snicket! - the silly !! I SWEAR I'LL BUY YOU EVER POPTART FLAVOUR IN THE WORLD !!
 
-you have never respected a single boundary i set since day one
+shower cap- GO BATHE YOU LITERALLY REEK????
 
-But you want me to do it for you?
-
-This 40/60 is Not Working at all. 
+MORE TO BE ADDED AUGHH

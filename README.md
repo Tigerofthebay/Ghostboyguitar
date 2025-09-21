@@ -3,6 +3,8 @@ Hello there sea dweller !!
 Im vinny/Andy 
 pronouns r he/they + neos !
 
+multifandom+multishipper !
+
 due to past harrasment and threaths i will no longer be fully managing my sites ! please stay respectful/kind when interacting with me !
 
 Boundaries 🦭🪼:

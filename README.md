@@ -80,7 +80,5 @@ also ! for the last time !do not int with me if youre friends with soap ! becaus
 
 this is just your way of covering up your bullshit please grow a pair and admit to your lies because someone here is two slow to put it together that you're dirty liars ! anyways this is the last time i'll be talking abt this crap
 
-and a note stop covering their asses because you know damn well theyre guilty asf ! You really do make any excuse in the world to justify their odd behavior  its getting ridiculous and id REALLY appreciate if you stopped publicly mentioning me because i keep getting word of it and nothing youre saying is nice ! 
-
 
 again, for the love of god this goes for everyone else please stop bringing this stuff to me. i do not care !

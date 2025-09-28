@@ -1,4 +1,4 @@
-Hello there sea dweller !!
+Hello there 🕯
 
 Im vinny/Andy 
 pronouns r he/they + neos !
@@ -7,17 +7,20 @@ multifandom+multishipper !
 
 due to past harrasment and threaths i will no longer be fully managing my sites ! please stay respectful/kind when interacting with me !
 
-Boundaries 🦭🪼:
+Boundaries🐦‍⬛🪦:
 
 1,no feminine pronouns or nicknames
 2,please do not ask me personal quetions 
-3, Please do not refer to me as love/darling or any other form of lovey dovey petnames ! hun and dear are alright !
+3, Please do not refer to me as love/darling or any other form of lovey dovey petnames unless you're Valien. ! hun and dear are alright but nothing else !
+
+Try not to flirt with me for i am taken ! 
 
 if i ask for space i would really prefer to be left alone, do not poke at me when i clearly want alone time.
 
 
 do not assume my feelings or emotions ! assumptions make an ass out of you !
 wanting space ≠ im angry
+
 
 do not use others to talk to me on things. this feels dehumanizing to me.
 i am tired of having this boundary ignored and id appreciate it if you respect it.
@@ -52,7 +55,7 @@ lovemail more to be added soon !
 
 valien - i've never been more happier  to have you, you have no idea how bright you make everything around you just by being there when i need you the most ! ilysm darling <333
 
-myst/mowie - My bestest friend ever !
+myst/jitterbug - My bestest friend ever !
 im happy to see you grow and change everyday and you have no idea how proud i am ! we have been through thick and thin together ! no situation has ever destroyed our friendship and that wont channge ! /p
 
 keegan - silly silly guy ! YOUR ART IS SO COOL AND YOURE A REALLY SWEET AND HONEST GUY !!
@@ -75,10 +78,3 @@ shower cap- GO BATHE YOU LITERALLY REEK????
 MORE TO BE ADDED AUGHH
 
 
-also ! for the last time !do not int with me if youre friends with soap ! because im honestly not buying this 
-"someone pretending to be us" bull crap with all the targetted threaths.
-
-this is just your way of covering up your bullshit please grow a pair and admit to your lies because someone here is two slow to put it together that you're dirty liars ! anyways this is the last time i'll be talking abt this crap
-
-
-again, for the love of god this goes for everyone else please stop bringing this stuff to me. i do not care !

@@ -5,13 +5,11 @@ pronouns r he/they + neos !
 
 multifandom+multishipper !
 
-due to past harrasment and threaths i will no longer be fully managing my sites ! please stay respectful/kind when interacting with me !
-
-Boundaries🐦‍⬛🪦:
+due to past harrasment and threaths i will no longer be fully managing my sites ! please stay respectful/kind when interacting with me 
 
 1,no feminine pronouns or nicknames
 2,please do not ask me personal quetions 
-3, Please do not refer to me as love/darling or any other form of lovey dovey petnames unless you're Valien. ! hun and dear are alright but nothing else !
+3, Please do not refer to me as love/darling or any other form of lovey dovey petnames unless you're Valien. ! also try not to be too clingy towards me when my partner is around !
 
 Try not to flirt with me for i am taken ! 
 

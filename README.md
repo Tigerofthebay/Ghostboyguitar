@@ -1,5 +1,8 @@
 Hello there 🕯
 
+note!: please donate to my friend ! 
+https://ko-fi.com/gothiccowboy/tiphttps://our-situation.straw.page/
+
 Im vinny/Andy 
 pronouns r he/they + neos !
 

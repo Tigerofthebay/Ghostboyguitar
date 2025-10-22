@@ -14,6 +14,8 @@ due to past harrasment and threaths i will no longer be fully managing my sites 
 2,please do not ask me personal quetions 
 3, Please do not refer to me as love/darling or any other form of lovey dovey petnames unless you're Valien. ! also try not to be too clingy towards me when my partner is around !
 
+Please do not yell or curse at me while im little. nor mention inappropriate topics. its really triggering to me and its a straightway to get blocked by me immediately.
+
 Try not to flirt with me for i am taken ! 
 
 if i ask for space i would really prefer to be left alone, do not poke at me when i clearly want alone time.
@@ -56,9 +58,6 @@ lovemail more to be added soon !
 
 valien - i've never been more happier  to have you, you have no idea how bright you make everything around you just by being there when i need you the most ! ilysm darling <333
 
-myst/jitterbug - My bestest friend ever !
-im happy to see you grow and change everyday and you have no idea how proud i am ! we have been through thick and thin together ! no situation has ever destroyed our friendship and that wont channge ! /p
-
 keegan - silly silly guy ! YOUR ART IS SO COOL AND YOURE A REALLY SWEET AND HONEST GUY !!
 
 Nene / yoko - ILYSM  OOMFIE /P 
@@ -75,6 +74,10 @@ friended so hard you get accused of being my partner in crime !!
 Snicket! - the silly !! I SWEAR I'LL BUY YOU EVER POPTART FLAVOUR IN THE WORLD !!
 
 shower cap- GO BATHE YOU LITERALLY REEK????
+
+Cash.. smelly.. stinky.. gay...pick a struggle !!! 
+
+MIMI - ONE OF MY FAVS HEHEH  mimiminimi 
 
 MORE TO BE ADDED AUGHH
 
